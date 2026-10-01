@@ -1,0 +1,2 @@
+# premium-neck-set-001-neck-setting-angle-fingerboa
+Are inaccurate neck settings and fingerboard projections holding you back from crafting violins that sing with perfect tone and playability? The Neck Setting Angle &amp; Fingerboard Projection Calculator is here to change that.  This notion template provides a precise, easy-to-use system for calculating the optimal neck setting angle and fingerboard pr
